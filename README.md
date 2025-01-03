@@ -1,1 +1,11 @@
 # codecatalyst-learning
+![Screenshot 2025-01-01 152524](https://github.com/user-attachments/assets/7cd17715-00d2-4cb8-903a-62022de65e76)
+![Screenshot 2025-01-03 121804](https://github.com/user-attachments/assets/bc849ac4-172d-484d-8dc6-845ae2ccacf2)
+![Screenshot 2025-01-03 121817](https://github.com/user-attachments/assets/2f9129e6-4727-4be7-be87-edf616956af5)
+![Screenshot 2025-01-03 124341](https://github.com/user-attachments/assets/2e1a2b67-162d-4687-80fb-108a379443a2)
+![Screenshot 2025-01-03 191559](https://github.com/user-attachments/assets/e60c405b-b7af-4442-9986-8e9892c347be)
+![Screenshot 2025-01-03 191608](https://github.com/user-attachments/assets/4caf850c-3ab6-4bf3-a021-4023ae3ea55c)
+![Screenshot 2025-01-03 191749](https://github.com/user-attachments/assets/7ed03ab3-4d53-452a-af17-d4d6c7f7b4fc)
+![Screenshot 2025-01-03 192540](https://github.com/user-attachments/assets/852c269a-6807-482f-9c4f-396468f2ff6a)
+![Screenshot 2025-01-03 194740](https://github.com/user-attachments/assets/bde4bd3d-48f1-44f6-b013-ef22d08c882a)
+![Screenshot 2025-01-03 194753](https://github.com/user-attachments/assets/2c96bd72-497c-4977-91ed-a37dc89cd8a8)
